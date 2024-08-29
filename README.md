@@ -10,4 +10,4 @@ and be one traveller long i stood
 
 and looked down one as far as i could
 
-to where it bent in the undergrowth
+to where it bent in the undergrowth.
