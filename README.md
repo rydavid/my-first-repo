@@ -1,2 +1,2 @@
 # my-first-repo
-A test repo for my comp chem class
+A test repo for my computational chemistry course
